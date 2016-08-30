@@ -42,7 +42,7 @@ I went to an informational session for Ada last week, and felt so inspired. I ca
 
 
 
-4. Tell us about a time you made a mistake that you learned a lot from. If you encountered the situation again, what would you do differently?
+**4. Tell us about a time you made a mistake that you learned a lot from. If you encountered the situation again, what would you do differently?**
 
 
 While I was serving in the United States Peace Corps, I wrestled a lot with my identity and purpose. I was wary, upon my acceptance to my post in West Africa, of acting like a "white savior." I didn't want to saunter into a community that, however different from mine, still had organization, and customs, and practices I needed to respect. How much space am I taking up? How am I showing respect for the culture? How am I behaving like a leader (which is bad) and how am I behaving like a facilitator (which is better)? I often questioned my place in the community, fearing I was infiltrating something that I wasn't a part of, fearing I was part of an organization that was built on soft diplomacy and nothing more than ornamental.
